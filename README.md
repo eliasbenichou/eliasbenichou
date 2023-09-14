@@ -1,6 +1,6 @@
 ## Elias Benichou - Economic Major 💼
 
-##Experience 💻
+## Experience 💻
 
 -**Capital One** - Product Manager 💳
 
