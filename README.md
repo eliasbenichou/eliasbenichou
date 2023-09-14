@@ -1,4 +1,4 @@
-# Elias Benichou - Economic Major 💼
+## Elias Benichou - Economic Major 💼
 
 ##Experience 💻
 
